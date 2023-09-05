@@ -5,4 +5,5 @@
 - Utilizarei esse espaço para mostrar meu desenvolvimento e compartilhar projetos
 
 Para entrar em contato 🥇
-@guilherme.oliveira.ferreira19@escol.pr.gov.br
+e-mail- @guilherme.oliveira.ferreira19@escol.pr.gov.br
+instagram- @gui.cauaa
